@@ -1,0 +1,1 @@
+Figures look right!!  Try to submit your initial analysis by Monday night so that I can see what you are thinking before class.  This time, you have some text on the correct figures that helped me out!
